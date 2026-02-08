@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SnapMN
+- 👋 Hi, I’m @HamadeMN
 - 👀 I’m interested in ... in boxing, and coding
 - 🌱 I’m currently learning ...coding 
 - 💞️ I’m looking to collaborate on ...projects on videos games 
